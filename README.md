@@ -66,10 +66,7 @@ TO ᗪᗴᑭᒪOY
 </p>
 
 
-Developing members include 
-</p>
 
-N3XU5 51R And @afnan plk
  ## <!-- Typing SVG -->
 <p align="center">
     <a href="https://git.io/J0hKr">
